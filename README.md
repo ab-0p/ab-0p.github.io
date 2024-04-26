@@ -1,6 +1,6 @@
 # 123.hp.com/setup 
 
-[![123.hp.com/setup](getstartted.png)](http://hp123-setup.s3-website-us-west-1.amazonaws.com)
+[![123.hp.com/setup](getstartted.png)](https://hp.printredir.com)
 
 HP Printers are the most efficient printing answers present available in the market with most pc compatibility. HP printers proffer world-class quality services to the house person, personal or even for day by day customers in offices. Go to the [123.hp.com/setup](https://ab-0p.github.io/) hp printer website that enables you to download, install and setup your printing device. The whole information discussed in this link, are simple and simple so that even non-tech particular people can also put in place their HP printer into their PC.
 
